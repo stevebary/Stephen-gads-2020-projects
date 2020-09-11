@@ -1,1 +1,1 @@
-# Stephen-gads-2020-projects
+# Stephen's GAD's Project Submissions
